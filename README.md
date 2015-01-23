@@ -1,4 +1,4 @@
 Erlangs
 =======
 
-Learning me some erlangs. 
+Some old attempts at learning me some erlangs. Consider this here for archive purposes! 
